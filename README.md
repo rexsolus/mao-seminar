@@ -5,7 +5,7 @@ https://elmas3.github.io/mao-seminar/
 
 
 #メンバー
-魔王教授
+真央教授
 エルます
 わかば
 
